@@ -1,0 +1,2 @@
+# script
+SCRIP BLOG ADS ADSENSE
